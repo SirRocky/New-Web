@@ -1,2 +1,1 @@
-# SirRocky.github.io Hello I guess idk
-# Hello I guess idk
+# Well hello there! Welcome to my I don't know how to do this and code website... yeah... why did I but the dang domain. Well, let me list my resons. 1. I wanted to learn how to code and this was the way to do it. 2. A good place to store my links, ads, uhhh, blogs uplaods idk. 3. Just beacause I can! So, get ready to go on this journey withme! I make make videos on updating the website and my way on lerning how to code, but if you have any reccomendationg, then do it on my YouTube or Discord!
